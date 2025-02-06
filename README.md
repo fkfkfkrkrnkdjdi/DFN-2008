@@ -1,6 +1,9 @@
 # DFN-.
 افالون ابو عايض جدخخ
 https://www.dropbox.com/scl/fi/fbroi0si5fecs1o9scn54/avalon-2009_modland.zip?rlkey=lwxxqyza0y43i1uquqloyinpp&st=821q8d9w&dl=1
+ربع ابو قحط 2024
+
+https://www.dropbox.com/scl/fi/2osqm3edehhbe3pwg0g72/505_modland.zip?rlkey=w81j541ucnmm8dba2qrt1uiqv&st=0nxdvo33&dl=1
 
 مكسيما&ابوعايض
 
