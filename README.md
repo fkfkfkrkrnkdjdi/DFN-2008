@@ -2,6 +2,19 @@
 افالون ابو عايض جدخخ
 https://www.dropbox.com/scl/fi/fbroi0si5fecs1o9scn54/avalon-2009_modland.zip?rlkey=lwxxqyza0y43i1uquqloyinpp&st=821q8d9w&dl=1
 
+كامري 2011 (خويلد) https://www.dropbox.com/scl/fi/v9ehgsc0u2ktkjxl5u8oo/Camry_2011_KHwylD.zip?rlkey=26d9hn2jpdqme17qlanbqz33x&st=fq5lkpbd&dl=1
+
+سوناتا https://www.dropbox.com/scl/fi/y08kx7eyw720z8m5dxmvi/sonatanffl.zip?rlkey=yk9fg8idj78qnvjshqlmyz0at&st=x6sga84r&dl=1
+
+سكويا https://www.dropbox.com/scl/fi/7q79sd0w9eunvwkqwy5bs/sequoia_by_meto.zip?rlkey=xxtr6n93mjfzct4y1isbao9tt&st=b8ryt6ub&dl=1
+
+كامري 2022 https://www.dropbox.com/scl/fi/7ljk1knx7m399l9gax39v/Camry_2022_KHwylD.zip?rlkey=oafgmvjjua2h3jlk3r07rarly&st=cwaekvol&dl=1
+
+هايلوكس 2017 https://www.dropbox.com/scl/fi/9ep1pmc7oicqhy1sdqgb3/Hilux_2016_KHwylD.zip?rlkey=l3bpwtkhjtg7vl4sdf1blgdqt&st=rq7kj7e2&dl=1
+
+ربع خويلد https://www.dropbox.com/scl/fi/pccick6y5899ibuxtrwni/Land_Cruiser_j70_2023_KHwylD.zip?rlkey=1zjn9vyesvbhzcf1j5hcxidzk&st=3nvw8421&dl=1
+
+
 ماب تطويف https://modsfire.com/DZ3fp5acsA584F7
 
 النترا١٥ https://www.dropbox.com/scl/fi/amzeivxf14arb74ooxs2d/Elantra_20151.zip?rlkey=3b3afa59z6bnkptoauo3xf44y&st=myjlsf0b&dl=1
