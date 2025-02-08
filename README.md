@@ -2,6 +2,10 @@
 افالون ابو عايض جدخخ
 https://www.dropbox.com/scl/fi/fbroi0si5fecs1o9scn54/avalon-2009_modland.zip?rlkey=lwxxqyza0y43i1uquqloyinpp&st=821q8d9w&dl=1
 
+ماب استراحات 
+https://www.dropbox.com/scl/fi/pp9iyyg0674ke5l4mo6gt/Al-Jaradiah-Riyadh_modland.zip?rlkey=x3xshs5xtb2flcqbr53rb051l&st=xu6fvcqi&dl=1
+
+
 كامري 2011 (خويلد) https://www.dropbox.com/scl/fi/v9ehgsc0u2ktkjxl5u8oo/Camry_2011_KHwylD.zip?rlkey=26d9hn2jpdqme17qlanbqz33x&st=fq5lkpbd&dl=1
 
 سوناتا https://www.dropbox.com/scl/fi/y08kx7eyw720z8m5dxmvi/sonatanffl.zip?rlkey=yk9fg8idj78qnvjshqlmyz0at&st=x6sga84r&dl=1
