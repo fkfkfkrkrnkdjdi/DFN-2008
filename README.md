@@ -32,7 +32,7 @@ https://www.dropbox.com/scl/fi/2osqm3edehhbe3pwg0g72/505_modland.zip?rlkey=w81j5
 
 مكسيما&ابوعايض
 
-https://www.dropbox.com/scl/fi/mq0r3xhz7v7ny1slai02w/m7-maxima.zip?rlkey=2nef34wbo48bepb1s48howk3p&st=mdw5fsde&dl=1
+(https://modsfire.com/download/Yv31aCQGvgA398l/b5ce3)
 
 هايلكس نسخه ابو عايض 
 
