@@ -31,8 +31,8 @@ https://www.dropbox.com/scl/fi/5itvymcwv5d0i5ywyeh9w/gmc.zip?rlkey=sfbh3h6qjzjlz
 https://www.dropbox.com/scl/fi/2osqm3edehhbe3pwg0g72/505_modland.zip?rlkey=w81j541ucnmm8dba2qrt1uiqv&st=0nxdvo33&dl=1
 
 مكسيما&ابوعايض
+https://modsfire.com/download/Yv31aCQGvgA398l/b5ce3
 
-(https://modsfire.com/download/Yv31aCQGvgA398l/b5ce3)
 
 هايلكس نسخه ابو عايض 
 
