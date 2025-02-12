@@ -12,6 +12,11 @@ https://www.dropbox.com/scl/fi/pp9iyyg0674ke5l4mo6gt/Al-Jaradiah-Riyadh_modland.
 
 ماب خويلد https://www.dropbox.com/scl/fi/k0x78ld94l7hn12q62tm9/Al-Jaradiah-Riyadh_modland.zip?rlkey=ufzt7wrwdaxvu2v6dz6y0p4b7&st=jv8ygcte&dl=1
 
+كامري 2011 https://www.dropbox.com/scl/fi/r4nv8qirzdefoip8jd29w/Camry_2011_KHwylD.zip?rlkey=g6mo197osyk7cirput27y2ad3&st=pf45wqgw&dl=1
+
+
+
+
 سوناتا 2017 https://www.dropbox.com/scl/fi/4bn1zan8qcoh9pup47pue/Sonata_2017_KHWYLD.zip?rlkey=vkn0p630v8sz2mtsergjc9gcx&st=lyuvcnyq&dl=1
 
 ربع 2024 https://www.dropbox.com/scl/fi/s3nsrytk6c0j72727xsf0/RB3_2024_KHwylD.zip?rlkey=mexn5fotxl2t4fz914in1rbja&st=tejvxx8e&dl=1
