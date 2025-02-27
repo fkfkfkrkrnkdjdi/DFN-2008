@@ -5,8 +5,16 @@ https://www.dropbox.com/scl/fi/fbroi0si5fecs1o9scn54/avalon-2009_modland.zip?rlk
 منعم شوارع 
 https://www.dropbox.com/scl/fi/ur3hrhrketctoh2n40ms9/change_ground_grip_angelo234.zip?rlkey=c39us966yiep1ijtrg4bysn3k&st=3kowroou&dl=1
 
+كدنزا 16
+https://www.dropbox.com/scl/fi/ikavuzm88yuz0wamid1ds/KIA-Cadenza-v2.zip?rlkey=y1s1urdfnpq8v2o7xytycdwok&st=54rl7b41&dl=1
+
+
 ماب استراحات 
-https://www.dropbox.com/scl/fi/pp9iyyg0674ke5l4mo6gt/Al-Jaradiah-Riyadh_modland.zip?rlkey=x3xshs5xtb2flcqbr53rb051l&st=xu6fvcqi&dl=1
+https://www.dropbox.com/scl/fi/pp9iyyg0674ke5l4mo6gt/Al-Jaradiah-Riyadh_modland.zip?rlkey=x3xshs5xtb2flcqbr53rb051l&st=xu6fvcqi&dl=
+
+
+لومينا ٢٠٠٨
+https://www.dropbox.com/scl/fi/yti26fq6kpkk21rkcfjqa/lumina-m7.zip?rlkey=dp97hw3bf45rzsh0ul59mr6mt&st=c77tr0dg&dl=1
 
 بوالين https://www.dropbox.com/scl/fi/gfm4s2kpk88xjuoermfv4/land.crii1.zip?rlkey=cp4y5w6y9invggurejwterv1u&dl=1
 
