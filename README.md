@@ -14,7 +14,7 @@ https://www.dropbox.com/scl/fi/pp9iyyg0674ke5l4mo6gt/Al-Jaradiah-Riyadh_modland.
 
 
 لومينا ٢٠٠٨
-https://www.dropbox.com/scl/fi/yti26fq6kpkk21rkcfjqa/lumina-m7.zip?rlkey=dp97hw3bf45rzsh0ul59mr6mt&st=c77tr0dg&dl=1
+https://modsfire.com/xOF4289Xejw1OMd
 
 بوالين https://www.dropbox.com/scl/fi/gfm4s2kpk88xjuoermfv4/land.crii1.zip?rlkey=cp4y5w6y9invggurejwterv1u&dl=1
 
