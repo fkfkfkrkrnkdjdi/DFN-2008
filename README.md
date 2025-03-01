@@ -49,9 +49,8 @@ https://modsfire.com/xOF4289Xejw1OMd
 
 ماب خويلد https://www.dropbox.com/scl/fi/k0x78ld94l7hn12q62tm9/Al-Jaradiah-Riyadh_modland.zip?rlkey=ufzt7wrwdaxvu2v6dz6y0p4b7&st=jv8ygcte&dl=1
 
-كامري 2011 https://www.dropbox.com/scl/fi/r4nv8qirzdefoip8jd29w/Camry_2011_KHwylD.zip?rlkey=g6mo197osyk7cirput27y2ad3&st=pf45wqgw&dl=1
-
-
+كامري 2011 
+https://www.dropbox.com/scl/fi/kuwn4kd52cpnt2fccvz67/Camry_2011_KHwylD.zip?rlkey=lfsn9yry8pare1sw8do1xlpye&st=r01q1ucj&dl=1
 
 
 سوناتا 2017 https://www.dropbox.com/scl/fi/4bn1zan8qcoh9pup47pue/Sonata_2017_KHWYLD.zip?rlkey=vkn0p630v8sz2mtsergjc9gcx&st=lyuvcnyq&dl=1
