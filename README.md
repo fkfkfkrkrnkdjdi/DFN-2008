@@ -2,6 +2,12 @@
 افالون ابو عايض جدخخ
 https://www.dropbox.com/scl/fi/fbroi0si5fecs1o9scn54/avalon-2009_modland.zip?rlkey=lwxxqyza0y43i1uquqloyinpp&st=821q8d9w&dl=1
 
+https://modsfire.com/6Kw6q9TsDoMzf1w
+لكزس نسخة قليدرز
+
+https://modsfire.com/2oKWTn132VbCu75
+كراون نسخة الاكلبي
+
 منعم شوارع 
 https://www.dropbox.com/scl/fi/ur3hrhrketctoh2n40ms9/change_ground_grip_angelo234.zip?rlkey=c39us966yiep1ijtrg4bysn3k&st=3kowroou&dl=1
 
