@@ -11,6 +11,11 @@ https://modsfire.com/2oKWTn132VbCu75
 منعم شوارع 
 https://www.dropbox.com/scl/fi/ur3hrhrketctoh2n40ms9/change_ground_grip_angelo234.zip?rlkey=c39us966yiep1ijtrg4bysn3k&st=3kowroou&dl=1
 
+كورلا
+https://modsfire.com/q09CF6vj47wBR6C#google_vignette
+
+
+
 كدنزا 16
 https://www.dropbox.com/scl/fi/ikavuzm88yuz0wamid1ds/KIA-Cadenza-v2.zip?rlkey=y1s1urdfnpq8v2o7xytycdwok&st=54rl7b41&dl=1
 
