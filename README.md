@@ -11,6 +11,9 @@ https://modsfire.com/2oKWTn132VbCu75
 منعم شوارع 
 https://www.dropbox.com/scl/fi/ur3hrhrketctoh2n40ms9/change_ground_grip_angelo234.zip?rlkey=c39us966yiep1ijtrg4bysn3k&st=3kowroou&dl=1
 
+لكزس
+https://modsfire.com/0Q5K34kV98cgpv3
+
 
 ماركيز
 https://www.dropbox.com/scl/fi/8e7ex3nmisz2lha7yjl4m/marq-m7.zip?rlkey=lom3m4t6gtqf1xg60kwtdunu9&st=mpscmsyw&dl=1
