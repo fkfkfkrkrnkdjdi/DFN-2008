@@ -10,6 +10,8 @@ https://modsfire.com/2oKWTn132VbCu75
 
 منعم شوارع 
 https://www.dropbox.com/scl/fi/ur3hrhrketctoh2n40ms9/change_ground_grip_angelo234.zip?rlkey=c39us966yiep1ijtrg4bysn3k&st=3kowroou&dl=1
+كي فايف مفجوره
+https://modsfire.com/7381g72X3uvoXdT
 
 اكسنت 2010
 https://modsfire.com/Wvr1fI9tm34v6kH
