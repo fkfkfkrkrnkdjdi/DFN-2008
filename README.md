@@ -2,6 +2,10 @@
 كروز الاكلبي
 https://modsfire.com/v77T8rg7GXU7pli
 
+مود للتصوير + يحسن جوده
+https://modsfire.com/m3sffUW2x1ZLA8I
+
+
 https://modsfire.com/6Kw6q9TsDoMzf1w
 لكزس نسخة قليدرز
 
