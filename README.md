@@ -14,6 +14,9 @@ https://www.dropbox.com/scl/fi/ur3hrhrketctoh2n40ms9/change_ground_grip_angelo23
 لكزس
 https://modsfire.com/0Q5K34kV98cgpv3
 
+ددسن درب الخطر
+https://www.modland.net/beamng.drive-mods/cars/nissan-ddsen-1-cab-beta-released.html
+
 
 ماركيز
 https://www.dropbox.com/scl/fi/8e7ex3nmisz2lha7yjl4m/marq-m7.zip?rlkey=lom3m4t6gtqf1xg60kwtdunu9&st=mpscmsyw&dl=1
